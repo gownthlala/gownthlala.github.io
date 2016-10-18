@@ -9,7 +9,7 @@ tags: [The sposa Group - Princess Kelly]
 Just **$129.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html"><img src="//static.msromantic.com/130837/princess-kelly-anastasia.jpg" alt="Princess Kelly ANASTASIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html"><img src="//static.msromantic.com/130837/princess-kelly-anastasia.jpg" alt="Princess Kelly ANASTASIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html](https://www.readybrides.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html)
+Buy it: [https://www.antebrands.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html](https://www.antebrands.com/en/the-sposa-group-princess-kelly/55370-princess-kelly-anastasia.html)

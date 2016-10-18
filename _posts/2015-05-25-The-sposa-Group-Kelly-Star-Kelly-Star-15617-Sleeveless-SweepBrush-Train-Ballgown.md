@@ -9,7 +9,7 @@ tags: [The sposa Group - Kelly Star ,The sposa Group - Kelly Star,Ballgown,Strap
 Just **$429.99**
 ###   Sleeveless Sweep/Brush Train Ballgown 
 <table><tr><td>BRANDS</td><td>The sposa Group - Kelly Star</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html"><img src="//static.msromantic.com/130382/kelly-star-156-17.jpg" alt="Kelly Star 156-17" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html"><img src="//static.msromantic.com/130382/kelly-star-156-17.jpg" alt="Kelly Star 156-17" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html"><img src="//static.msromantic.com/130381/kelly-star-156-17.jpg" alt="Kelly Star 156-17" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html"><img src="//static.msromantic.com/130381/kelly-star-156-17.jpg" alt="Kelly Star 156-17" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55131-kelly-star-156-17.html)

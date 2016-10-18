@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$799.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html"><img src="//static.msromantic.com/140214/landa-designs-gf711.jpg" alt="Landa Designs GF711" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html"><img src="//static.msromantic.com/140214/landa-designs-gf711.jpg" alt="Landa Designs GF711" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html"><img src="//static.msromantic.com/140213/landa-designs-gf711.jpg" alt="Landa Designs GF711" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html"><img src="//static.msromantic.com/140213/landa-designs-gf711.jpg" alt="Landa Designs GF711" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60130-landa-designs-gf711.html)

@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html"><img src="//static.msromantic.com/121894/pallas-couture-angele.jpg" alt="Pallas Couture Angele" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html"><img src="//static.msromantic.com/121894/pallas-couture-angele.jpg" alt="Pallas Couture Angele" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52203-pallas-couture-angele.html)

@@ -9,8 +9,8 @@ tags: [The sposa Group - Divina Sposa,Aline/Princess ,Off The Shoulder,Chapel Tr
 Just **$309.99**
 ###   Short Sleeves Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>The sposa Group - Divina Sposa</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129857/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129857/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129858/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129856/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html](https://www.readybrides.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129858/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html"><img src="//static.msromantic.com/129856/divina-sposa-ds162-19.jpg" alt="Divina Sposa DS162-19" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html](https://www.antebrands.com/en/the-sposa-group-divina-sposa/54920-divina-sposa-ds162-19.html)

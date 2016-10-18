@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridals Venus]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html"><img src="//static.msromantic.com/128395/venus-bridal-ve8688.jpg" alt="Venus Bridal VE8688" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html"><img src="//static.msromantic.com/128395/venus-bridal-ve8688.jpg" alt="Venus Bridal VE8688" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html"><img src="//static.msromantic.com/128394/venus-bridal-ve8688.jpg" alt="Venus Bridal VE8688" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html](https://www.readybrides.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html"><img src="//static.msromantic.com/128394/venus-bridal-ve8688.jpg" alt="Venus Bridal VE8688" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html](https://www.antebrands.com/en/venus-bridal-bridals-venus/54265-venus-bridal-ve8688.html)

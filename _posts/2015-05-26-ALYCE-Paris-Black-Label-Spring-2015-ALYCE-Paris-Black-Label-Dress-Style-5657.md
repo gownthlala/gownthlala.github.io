@@ -9,7 +9,7 @@ tags: [ALYCE Paris Black Label - Spring 2015]
 Just **$569.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html"><img src="//static.msromantic.com/133440/alyce-paris-black-label-dress-style-5657.jpg" alt="ALYCE Paris Black Label Dress Style 5657" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html"><img src="//static.msromantic.com/133440/alyce-paris-black-label-dress-style-5657.jpg" alt="ALYCE Paris Black Label Dress Style 5657" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html"><img src="//static.msromantic.com/133439/alyce-paris-black-label-dress-style-5657.jpg" alt="ALYCE Paris Black Label Dress Style 5657" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html](https://www.readybrides.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html"><img src="//static.msromantic.com/133439/alyce-paris-black-label-dress-style-5657.jpg" alt="ALYCE Paris Black Label Dress Style 5657" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html](https://www.antebrands.com/en/alyce-paris-black-label-spring-2015/56533-alyce-paris-black-label-dress-style-5657.html)

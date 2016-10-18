@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Collection - Spring 2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html"><img src="//static.msromantic.com/121500/monique-lhuillier-logan.jpg" alt="Monique Lhuillier Logan" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html"><img src="//static.msromantic.com/121500/monique-lhuillier-logan.jpg" alt="Monique Lhuillier Logan" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html](https://www.readybrides.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html](https://www.antebrands.com/en/monique-lhuillier-collection-spring-2015/51995-monique-lhuillier-logan.html)

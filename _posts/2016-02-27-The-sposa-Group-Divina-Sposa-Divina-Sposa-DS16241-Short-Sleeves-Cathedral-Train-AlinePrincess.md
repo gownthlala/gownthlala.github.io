@@ -9,8 +9,8 @@ tags: [The sposa Group - Divina Sposa,Aline/Princess ,Illusion,Bateau,Cathedral 
 Just **$399.99**
 ###   Short Sleeves Cathedral Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>The sposa Group - Divina Sposa</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion,Bateau</td></tr><tr><td>Hemline/Train</td><td>Cathedral Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129930/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129930/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129931/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129929/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html](https://www.readybrides.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129931/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html"><img src="//static.msromantic.com/129929/divina-sposa-ds162-41.jpg" alt="Divina Sposa DS162-41" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html](https://www.antebrands.com/en/the-sposa-group-divina-sposa/54942-divina-sposa-ds162-41.html)

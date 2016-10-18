@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$619.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html"><img src="//static.msromantic.com/140234/landa-designs-ge680.jpg" alt="Landa Designs GE680" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html"><img src="//static.msromantic.com/140234/landa-designs-ge680.jpg" alt="Landa Designs GE680" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html"><img src="//static.msromantic.com/140233/landa-designs-ge680.jpg" alt="Landa Designs GE680" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html"><img src="//static.msromantic.com/140233/landa-designs-ge680.jpg" alt="Landa Designs GE680" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60140-landa-designs-ge680.html)

@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Bella Maids]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html"><img src="//static.msromantic.com/128864/venus-bridal-bm2022.jpg" alt="Venus Bridal BM2022" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html"><img src="//static.msromantic.com/128864/venus-bridal-bm2022.jpg" alt="Venus Bridal BM2022" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html)
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54470-venus-bridal-bm2022.html)

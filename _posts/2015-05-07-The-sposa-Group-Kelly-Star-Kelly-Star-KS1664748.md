@@ -9,7 +9,7 @@ tags: [The sposa Group - Kelly Star ]
 Just **$549.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html"><img src="//static.msromantic.com/130345/kelly-star-ks166-47-48.jpg" alt="Kelly Star KS166-47-48" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html"><img src="//static.msromantic.com/130345/kelly-star-ks166-47-48.jpg" alt="Kelly Star KS166-47-48" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html)
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55113-kelly-star-ks166-47-48.html)

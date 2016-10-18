@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Collection - Fall 2016]
 Just **$659.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html"><img src="//static.msromantic.com/121431/monique-lhuillier-veneta.jpg" alt="Monique Lhuillier Veneta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html"><img src="//static.msromantic.com/121431/monique-lhuillier-veneta.jpg" alt="Monique Lhuillier Veneta" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html](https://www.readybrides.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html](https://www.antebrands.com/en/monique-lhuillier-collection-fall-2016/51926-monique-lhuillier-veneta.html)

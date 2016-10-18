@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html"><img src="//static.msromantic.com/121883/pallas-couture-ezrella.jpg" alt="Pallas Couture Ezrella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html"><img src="//static.msromantic.com/121883/pallas-couture-ezrella.jpg" alt="Pallas Couture Ezrella" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html](https://www.readybrides.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html](https://www.antebrands.com/en/pallas-couture-classiques/52194-pallas-couture-ezrella.html)

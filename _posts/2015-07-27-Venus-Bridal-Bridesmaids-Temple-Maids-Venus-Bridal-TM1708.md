@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Temple Maids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html"><img src="//static.msromantic.com/129452/venus-bridal-tm1708.jpg" alt="Venus Bridal TM1708" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html"><img src="//static.msromantic.com/129452/venus-bridal-tm1708.jpg" alt="Venus Bridal TM1708" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html"><img src="//static.msromantic.com/129451/venus-bridal-tm1708.jpg" alt="Venus Bridal TM1708" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html"><img src="//static.msromantic.com/129451/venus-bridal-tm1708.jpg" alt="Venus Bridal TM1708" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-temple-maids/54727-venus-bridal-tm1708.html)

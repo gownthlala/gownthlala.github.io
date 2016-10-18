@@ -9,7 +9,7 @@ tags: [Pallas Couture La Haute Bijoux]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html"><img src="//static.msromantic.com/121876/pallas-couture-beaumont.jpg" alt="Pallas Couture Beaumont" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html"><img src="//static.msromantic.com/121876/pallas-couture-beaumont.jpg" alt="Pallas Couture Beaumont" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html](https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html](https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52188-pallas-couture-beaumont.html)

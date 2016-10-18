@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html"><img src="//static.msromantic.com/121891/pallas-couture-marjolein.jpg" alt="Pallas Couture Marjolein" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html"><img src="//static.msromantic.com/121891/pallas-couture-marjolein.jpg" alt="Pallas Couture Marjolein" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html](https://www.readybrides.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html](https://www.antebrands.com/en/pallas-couture-classiques/52200-pallas-couture-marjolein.html)

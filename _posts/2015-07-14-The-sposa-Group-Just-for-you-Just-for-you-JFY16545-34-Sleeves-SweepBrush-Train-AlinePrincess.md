@@ -9,7 +9,7 @@ tags: [The sposa Group - Just for you ,Aline/Princess ,Bateau,Sweep/Brush Train,
 Just **$299.99**
 ###   3/4 Sleeves Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>The sposa Group - Just for you </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html"><img src="//static.msromantic.com/130440/just-for-you-jfy165-45.jpg" alt="Just for you JFY165-45" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html"><img src="//static.msromantic.com/130440/just-for-you-jfy165-45.jpg" alt="Just for you JFY165-45" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html](https://www.readybrides.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html)
+Buy it: [https://www.antebrands.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html](https://www.antebrands.com/en/the-sposa-group-just-for-you-/55181-just-for-you-jfy165-45.html)

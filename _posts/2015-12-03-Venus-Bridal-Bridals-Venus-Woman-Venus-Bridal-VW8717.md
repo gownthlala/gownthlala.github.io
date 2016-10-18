@@ -9,8 +9,8 @@ tags: [Venus Bridal Bridals Venus Woman]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128677/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128677/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128678/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128676/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html](https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128678/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html"><img src="//static.msromantic.com/128676/venus-bridal-vw8717.jpg" alt="Venus Bridal VW8717" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html](https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54389-venus-bridal-vw8717.html)

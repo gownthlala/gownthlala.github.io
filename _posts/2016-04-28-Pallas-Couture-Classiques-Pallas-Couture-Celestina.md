@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html"><img src="//static.msromantic.com/121892/pallas-couture-celestina.jpg" alt="Pallas Couture Celestina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html"><img src="//static.msromantic.com/121892/pallas-couture-celestina.jpg" alt="Pallas Couture Celestina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html](https://www.readybrides.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html](https://www.antebrands.com/en/pallas-couture-classiques/52201-pallas-couture-celestina.html)

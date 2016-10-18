@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Bella Jr Maids]
 Just **$139.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html"><img src="//static.msromantic.com/129348/venus-bridal-jm4331.jpg" alt="Venus Bridal JM4331" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html"><img src="//static.msromantic.com/129348/venus-bridal-jm4331.jpg" alt="Venus Bridal JM4331" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html"><img src="//static.msromantic.com/129347/venus-bridal-jm4331.jpg" alt="Venus Bridal JM4331" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html"><img src="//static.msromantic.com/129347/venus-bridal-jm4331.jpg" alt="Venus Bridal JM4331" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-jr-maids/54681-venus-bridal-jm4331.html)

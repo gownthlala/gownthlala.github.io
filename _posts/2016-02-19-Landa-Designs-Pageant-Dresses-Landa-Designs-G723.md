@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$479.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html"><img src="//static.msromantic.com/140097/landa-designs-g723.jpg" alt="Landa Designs G723" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html"><img src="//static.msromantic.com/140097/landa-designs-g723.jpg" alt="Landa Designs G723" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html"><img src="//static.msromantic.com/140096/landa-designs-g723.jpg" alt="Landa Designs G723" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html"><img src="//static.msromantic.com/140096/landa-designs-g723.jpg" alt="Landa Designs G723" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60071-landa-designs-g723.html)

@@ -9,7 +9,7 @@ tags: [ALYCE Paris Mothers of the Bride Dresses - Fall 2014 Jean de Lys]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html"><img src="//static.msromantic.com/133282/alyce-paris-style-29143.jpg" alt="ALYCE Paris Style 29143" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html"><img src="//static.msromantic.com/133282/alyce-paris-style-29143.jpg" alt="ALYCE Paris Style 29143" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html](https://www.readybrides.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html)
+Buy it: [https://www.antebrands.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html](https://www.antebrands.com/en/alyce-paris-mothers-of-the-bride-dresses-fall-2014-jean-de-lys/56460-alyce-paris-style-29143.html)

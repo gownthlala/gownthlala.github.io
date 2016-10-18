@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html"><img src="//static.msromantic.com/121881/pallas-couture-marpessa.jpg" alt="Pallas Couture Marpessa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html"><img src="//static.msromantic.com/121881/pallas-couture-marpessa.jpg" alt="Pallas Couture Marpessa" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html](https://www.readybrides.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html](https://www.antebrands.com/en/pallas-couture-classiques/52192-pallas-couture-marpessa.html)

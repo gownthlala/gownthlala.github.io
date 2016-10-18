@@ -9,7 +9,7 @@ tags: [Temperley London,Sheath/Column,Sweep/Brush Train]
 Just **$499.00**
 ###    Sweep/Brush Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Temperley London</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr></table>
-<a href="https://www.readybrides.com/en/temperley-london/55434-temperley-london-tamir-dress.html"><img src="//static.msromantic.com/130931/temperley-london-tamir-dress.jpg" alt="Temperley London  Tamir Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/temperley-london/55434-temperley-london-tamir-dress.html"><img src="//static.msromantic.com/130931/temperley-london-tamir-dress.jpg" alt="Temperley London  Tamir Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/temperley-london/55434-temperley-london-tamir-dress.html](https://www.readybrides.com/en/temperley-london/55434-temperley-london-tamir-dress.html)
+Buy it: [https://www.antebrands.com/en/temperley-london/55434-temperley-london-tamir-dress.html](https://www.antebrands.com/en/temperley-london/55434-temperley-london-tamir-dress.html)

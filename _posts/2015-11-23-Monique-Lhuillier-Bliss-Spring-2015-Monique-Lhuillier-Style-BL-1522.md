@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Bliss - Spring 2015]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html"><img src="//static.msromantic.com/121549/monique-lhuillier-style-bl-1522.jpg" alt="Monique Lhuillier Style BL 1522" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html"><img src="//static.msromantic.com/121549/monique-lhuillier-style-bl-1522.jpg" alt="Monique Lhuillier Style BL 1522" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html](https://www.readybrides.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html](https://www.antebrands.com/en/monique-lhuillier-bliss-spring-2015/52044-monique-lhuillier-style-bl-1522.html)

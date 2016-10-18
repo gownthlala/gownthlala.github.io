@@ -9,7 +9,7 @@ tags: [Temperley London,Aline/Princess ,Floor-Length,Long Sleeves]
 Just **$269.99**
 ###   Long Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Temperley London</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/temperley-london/55398-temperley-london-petunia-skirt.html"><img src="//static.msromantic.com/130883/temperley-london-petunia-skirt.jpg" alt="Temperley London Petunia Skirt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/temperley-london/55398-temperley-london-petunia-skirt.html"><img src="//static.msromantic.com/130883/temperley-london-petunia-skirt.jpg" alt="Temperley London Petunia Skirt" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/temperley-london/55398-temperley-london-petunia-skirt.html](https://www.readybrides.com/en/temperley-london/55398-temperley-london-petunia-skirt.html)
+Buy it: [https://www.antebrands.com/en/temperley-london/55398-temperley-london-petunia-skirt.html](https://www.antebrands.com/en/temperley-london/55398-temperley-london-petunia-skirt.html)

@@ -9,7 +9,7 @@ tags: [ALYCE Paris Spring 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html"><img src="//static.msromantic.com/132068/alyce-paris-alyce-dress-style-6550.jpg" alt="ALYCE Paris Alyce - Dress Style 6550" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html"><img src="//static.msromantic.com/132068/alyce-paris-alyce-dress-style-6550.jpg" alt="ALYCE Paris Alyce - Dress Style 6550" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html"><img src="//static.msromantic.com/132067/alyce-paris-alyce-dress-style-6550.jpg" alt="ALYCE Paris Alyce - Dress Style 6550" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html](https://www.readybrides.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html"><img src="//static.msromantic.com/132067/alyce-paris-alyce-dress-style-6550.jpg" alt="ALYCE Paris Alyce - Dress Style 6550" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html](https://www.antebrands.com/en/alyce-paris-spring-2016/55931-alyce-paris-alyce-dress-style-6550.html)

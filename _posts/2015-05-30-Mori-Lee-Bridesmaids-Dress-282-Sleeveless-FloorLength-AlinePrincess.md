@@ -9,7 +9,7 @@ tags: [Mori Lee ,Mori Lee,Aline/Princess ,One shoulder,Floor-Length,Sleeveless]
 Just **$229.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Mori Lee</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html"><img src="//static.msromantic.com/124790/mori-lee-bridesmaids-dress-282.jpg" alt="Mori Lee Bridesmaids Dress 282" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html"><img src="//static.msromantic.com/124790/mori-lee-bridesmaids-dress-282.jpg" alt="Mori Lee Bridesmaids Dress 282" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html](https://www.readybrides.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html)
+Buy it: [https://www.antebrands.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html](https://www.antebrands.com/en/mori-lee-/53268-mori-lee-bridesmaids-dress-282.html)

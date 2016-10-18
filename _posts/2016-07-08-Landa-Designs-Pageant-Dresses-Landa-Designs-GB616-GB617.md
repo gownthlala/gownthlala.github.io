@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$539.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html"><img src="//static.msromantic.com/140375/landa-designs-gb616-gb617.jpg" alt="Landa Designs GB616 & GB617" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html"><img src="//static.msromantic.com/140375/landa-designs-gb616-gb617.jpg" alt="Landa Designs GB616 & GB617" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60211-landa-designs-gb616-gb617.html)

@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridals Temple Bridal]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html"><img src="//static.msromantic.com/128644/venus-bridal-tb7652.jpg" alt="Venus Bridal TB7652" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html"><img src="//static.msromantic.com/128644/venus-bridal-tb7652.jpg" alt="Venus Bridal TB7652" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html"><img src="//static.msromantic.com/128643/venus-bridal-tb7652.jpg" alt="Venus Bridal TB7652" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html](https://www.readybrides.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html"><img src="//static.msromantic.com/128643/venus-bridal-tb7652.jpg" alt="Venus Bridal TB7652" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html](https://www.antebrands.com/en/venus-bridal-bridals-temple-bridal/54374-venus-bridal-tb7652.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Splash Couture Prom]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html"><img src="//static.msromantic.com/139828/landa-designs-c011.jpg" alt="Landa Designs C011" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html"><img src="//static.msromantic.com/139828/landa-designs-c011.jpg" alt="Landa Designs C011" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html](https://www.readybrides.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html](https://www.antebrands.com/en/landa-designs-splash-couture-prom/59931-landa-designs-c011.html)

@@ -9,8 +9,8 @@ tags: [The sposa Group - Kelly Star ,The sposa Group - Kelly Star,Ballgown,Sweet
 Just **$469.99**
 ###   Sleeveless Court Train Ballgown 
 <table><tr><td>BRANDS</td><td>The sposa Group - Kelly Star</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130293/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130293/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130294/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130292/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130294/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html"><img src="//static.msromantic.com/130292/kelly-star-ks166-12.jpg" alt="Kelly Star KS166-12" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55091-kelly-star-ks166-12.html)

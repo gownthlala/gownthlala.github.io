@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Bridesmaids - Fall 2015]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html"><img src="//static.msromantic.com/121596/monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.jpg" alt="Monique Lhuillier Navy ballet length taffeta dress with full skirt and tulle yoke" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html"><img src="//static.msromantic.com/121596/monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.jpg" alt="Monique Lhuillier Navy ballet length taffeta dress with full skirt and tulle yoke" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html](https://www.readybrides.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html](https://www.antebrands.com/en/monique-lhuillier-bridesmaids-fall-2015/52091-monique-lhuillier-navy-ballet-length-taffeta-dress-with-full-skirt-and-tulle-yoke.html)

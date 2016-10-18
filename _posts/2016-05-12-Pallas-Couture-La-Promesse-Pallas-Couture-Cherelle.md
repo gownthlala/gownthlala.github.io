@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html"><img src="//static.msromantic.com/121906/pallas-couture-cherelle.jpg" alt="Pallas Couture Cherelle" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html"><img src="//static.msromantic.com/121906/pallas-couture-cherelle.jpg" alt="Pallas Couture Cherelle" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52215-pallas-couture-cherelle.html)

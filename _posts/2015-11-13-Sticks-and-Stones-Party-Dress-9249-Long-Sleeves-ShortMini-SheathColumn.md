@@ -9,7 +9,7 @@ tags: [Sticks and Stones ,Sticks and Stones,Sheath/Column,Bateau,Short/Mini,Long
 Just **$379.99**
 ###   Long Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Sticks and Stones</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html"><img src="//static.msromantic.com/127292/sticks-and-stones-party-dress-9249.jpg" alt="Sticks and Stones Party Dress 9249" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html"><img src="//static.msromantic.com/127292/sticks-and-stones-party-dress-9249.jpg" alt="Sticks and Stones Party Dress 9249" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html"><img src="//static.msromantic.com/127291/sticks-and-stones-party-dress-9249.jpg" alt="Sticks and Stones Party Dress 9249" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html](https://www.readybrides.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html)
+<!-- break --><a href="https://www.antebrands.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html"><img src="//static.msromantic.com/127291/sticks-and-stones-party-dress-9249.jpg" alt="Sticks and Stones Party Dress 9249" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html](https://www.antebrands.com/en/sticks-and-stones-/53902-sticks-and-stones-party-dress-9249.html)

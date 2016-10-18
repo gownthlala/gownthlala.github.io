@@ -9,7 +9,7 @@ tags: [Landa Designs Destination Bridal Dresses]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html"><img src="//static.msromantic.com/140509/landa-designs-db224.jpg" alt="Landa Designs DB224" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html"><img src="//static.msromantic.com/140509/landa-designs-db224.jpg" alt="Landa Designs DB224" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html](https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html](https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60281-landa-designs-db224.html)

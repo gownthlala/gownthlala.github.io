@@ -9,8 +9,8 @@ tags: [ALYCE Paris Spring 2016]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131885/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131885/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131886/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131884/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html](https://www.readybrides.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131886/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html"><img src="//static.msromantic.com/131884/alyce-paris-b-dazzle-dress-style-35777.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35777" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html](https://www.antebrands.com/en/alyce-paris-spring-2016/55849-alyce-paris-b-dazzle-dress-style-35777.html)

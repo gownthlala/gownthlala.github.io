@@ -9,7 +9,7 @@ tags: [Val Stefani ,Val Stefani,Mermaid/Trumpet,V-neck,Court Train,Sleeveless]
 Just **$879.99**
 ###   Sleeveless Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Val Stefani</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/val-stefani-/51671-val-stefani-style-2839rb.html"><img src="//static.msromantic.com/121138/val-stefani-style-2839rb.jpg" alt="Val Stefani STYLE 2839RB" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/val-stefani-/51671-val-stefani-style-2839rb.html"><img src="//static.msromantic.com/121138/val-stefani-style-2839rb.jpg" alt="Val Stefani STYLE 2839RB" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/val-stefani-/51671-val-stefani-style-2839rb.html"><img src="//static.msromantic.com/121137/val-stefani-style-2839rb.jpg" alt="Val Stefani STYLE 2839RB" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/val-stefani-/51671-val-stefani-style-2839rb.html](https://www.readybrides.com/en/val-stefani-/51671-val-stefani-style-2839rb.html)
+<!-- break --><a href="https://www.antebrands.com/en/val-stefani-/51671-val-stefani-style-2839rb.html"><img src="//static.msromantic.com/121137/val-stefani-style-2839rb.jpg" alt="Val Stefani STYLE 2839RB" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/val-stefani-/51671-val-stefani-style-2839rb.html](https://www.antebrands.com/en/val-stefani-/51671-val-stefani-style-2839rb.html)

@@ -9,7 +9,7 @@ tags: [Pallas Couture Fleur & Fleur Blanche]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html"><img src="//static.msromantic.com/121917/pallas-couture-colesha.jpg" alt="Pallas Couture Colesha" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html"><img src="//static.msromantic.com/121917/pallas-couture-colesha.jpg" alt="Pallas Couture Colesha" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html](https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html](https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52225-pallas-couture-colesha.html)

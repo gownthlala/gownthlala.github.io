@@ -9,7 +9,7 @@ tags: [Venus Bridal Little Maiden]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html"><img src="//static.msromantic.com/129624/venus-bridal-lm3513.jpg" alt="Venus Bridal LM3513" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html"><img src="//static.msromantic.com/129624/venus-bridal-lm3513.jpg" alt="Venus Bridal LM3513" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html"><img src="//static.msromantic.com/129623/venus-bridal-lm3513.jpg" alt="Venus Bridal LM3513" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html](https://www.readybrides.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html"><img src="//static.msromantic.com/129623/venus-bridal-lm3513.jpg" alt="Venus Bridal LM3513" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html](https://www.antebrands.com/en/venus-bridal-little-maiden/54807-venus-bridal-lm3513.html)

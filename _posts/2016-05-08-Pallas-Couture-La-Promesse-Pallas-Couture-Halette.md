@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html"><img src="//static.msromantic.com/121902/pallas-couture-halette.jpg" alt="Pallas Couture Halette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html"><img src="//static.msromantic.com/121902/pallas-couture-halette.jpg" alt="Pallas Couture Halette" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52211-pallas-couture-halette.html)

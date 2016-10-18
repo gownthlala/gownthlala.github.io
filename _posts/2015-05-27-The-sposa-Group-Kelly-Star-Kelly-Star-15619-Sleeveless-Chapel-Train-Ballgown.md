@@ -9,7 +9,7 @@ tags: [The sposa Group - Kelly Star ,The sposa Group - Kelly Star,Ballgown,Strap
 Just **$359.99**
 ###   Sleeveless Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>The sposa Group - Kelly Star</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html"><img src="//static.msromantic.com/130386/kelly-star-156-19.jpg" alt="Kelly Star 156-19" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html"><img src="//static.msromantic.com/130386/kelly-star-156-19.jpg" alt="Kelly Star 156-19" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html)
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55133-kelly-star-156-19.html)

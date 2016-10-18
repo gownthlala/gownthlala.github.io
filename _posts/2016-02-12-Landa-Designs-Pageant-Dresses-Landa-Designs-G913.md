@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html"><img src="//static.msromantic.com/140083/landa-designs-g913.jpg" alt="Landa Designs G913" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html"><img src="//static.msromantic.com/140083/landa-designs-g913.jpg" alt="Landa Designs G913" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html"><img src="//static.msromantic.com/140082/landa-designs-g913.jpg" alt="Landa Designs G913" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html"><img src="//static.msromantic.com/140082/landa-designs-g913.jpg" alt="Landa Designs G913" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60064-landa-designs-g913.html)

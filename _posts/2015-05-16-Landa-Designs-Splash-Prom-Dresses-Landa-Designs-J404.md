@@ -9,7 +9,7 @@ tags: [Landa Designs Splash Prom Dresses]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html"><img src="//static.msromantic.com/139566/landa-designs-j404.jpg" alt="Landa Designs J404" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html"><img src="//static.msromantic.com/139566/landa-designs-j404.jpg" alt="Landa Designs J404" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html](https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html](https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59792-landa-designs-j404.html)

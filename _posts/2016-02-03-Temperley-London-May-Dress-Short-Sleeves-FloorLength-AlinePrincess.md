@@ -9,7 +9,7 @@ tags: [Temperley London,Aline/Princess ,Jewel,Floor-Length,Short Sleeves]
 Just **$389.99**
 ###   Short Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Temperley London</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Jewel</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/temperley-london/55385-temperley-london-may-dress.html"><img src="//static.msromantic.com/130864/temperley-london-may-dress.jpg" alt="Temperley London  May Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/temperley-london/55385-temperley-london-may-dress.html"><img src="//static.msromantic.com/130864/temperley-london-may-dress.jpg" alt="Temperley London  May Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/temperley-london/55385-temperley-london-may-dress.html"><img src="//static.msromantic.com/130863/temperley-london-may-dress.jpg" alt="Temperley London  May Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/temperley-london/55385-temperley-london-may-dress.html](https://www.readybrides.com/en/temperley-london/55385-temperley-london-may-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/temperley-london/55385-temperley-london-may-dress.html"><img src="//static.msromantic.com/130863/temperley-london-may-dress.jpg" alt="Temperley London  May Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/temperley-london/55385-temperley-london-may-dress.html](https://www.antebrands.com/en/temperley-london/55385-temperley-london-may-dress.html)

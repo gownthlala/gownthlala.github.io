@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridals Venus Woman]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html"><img src="//static.msromantic.com/128700/venus-bridal-vw8702.jpg" alt="Venus Bridal VW8702" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html"><img src="//static.msromantic.com/128700/venus-bridal-vw8702.jpg" alt="Venus Bridal VW8702" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html"><img src="//static.msromantic.com/128699/venus-bridal-vw8702.jpg" alt="Venus Bridal VW8702" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html](https://www.readybrides.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html"><img src="//static.msromantic.com/128699/venus-bridal-vw8702.jpg" alt="Venus Bridal VW8702" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html](https://www.antebrands.com/en/venus-bridal-bridals-venus-woman/54397-venus-bridal-vw8702.html)

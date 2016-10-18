@@ -9,7 +9,7 @@ tags: [Pallas Couture Fleur & Fleur Blanche]
 Just **$509.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html"><img src="//static.msromantic.com/121909/pallas-couture-adorlee.jpg" alt="Pallas Couture Adorlee" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html"><img src="//static.msromantic.com/121909/pallas-couture-adorlee.jpg" alt="Pallas Couture Adorlee" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html](https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html](https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52218-pallas-couture-adorlee.html)

@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Collection - Fall 2015]
 Just **$479.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html"><img src="//static.msromantic.com/121478/monique-lhuillier-gigi.jpg" alt="Monique Lhuillier Gigi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html"><img src="//static.msromantic.com/121478/monique-lhuillier-gigi.jpg" alt="Monique Lhuillier Gigi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html](https://www.readybrides.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html](https://www.antebrands.com/en/monique-lhuillier-collection-fall-2015/51973-monique-lhuillier-gigi.html)

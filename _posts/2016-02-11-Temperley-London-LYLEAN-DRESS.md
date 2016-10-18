@@ -9,7 +9,7 @@ tags: [Temperley London]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/temperley-london/55393-temperley-london-lylean-dress.html"><img src="//static.msromantic.com/130876/temperley-london-lylean-dress.jpg" alt="Temperley London  LYLEAN DRESS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/temperley-london/55393-temperley-london-lylean-dress.html"><img src="//static.msromantic.com/130876/temperley-london-lylean-dress.jpg" alt="Temperley London  LYLEAN DRESS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/temperley-london/55393-temperley-london-lylean-dress.html](https://www.readybrides.com/en/temperley-london/55393-temperley-london-lylean-dress.html)
+Buy it: [https://www.antebrands.com/en/temperley-london/55393-temperley-london-lylean-dress.html](https://www.antebrands.com/en/temperley-london/55393-temperley-london-lylean-dress.html)

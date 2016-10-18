@@ -9,7 +9,7 @@ tags: [Landa Designs Cocktail Dresses]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html"><img src="//static.msromantic.com/140038/landa-designs-e451.jpg" alt="Landa Designs E451" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html"><img src="//static.msromantic.com/140038/landa-designs-e451.jpg" alt="Landa Designs E451" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html](https://www.readybrides.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html](https://www.antebrands.com/en/landa-designs-cocktail-dresses/60040-landa-designs-e451.html)

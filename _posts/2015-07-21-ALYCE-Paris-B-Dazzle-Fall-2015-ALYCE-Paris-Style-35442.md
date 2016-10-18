@@ -9,7 +9,7 @@ tags: [ALYCE Paris B Dazzle - Fall 2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html"><img src="//static.msromantic.com/132501/alyce-paris-style-35442.jpg" alt="ALYCE Paris Style 35442" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html"><img src="//static.msromantic.com/132501/alyce-paris-style-35442.jpg" alt="ALYCE Paris Style 35442" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html](https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html)
+Buy it: [https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html](https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56122-alyce-paris-style-35442.html)

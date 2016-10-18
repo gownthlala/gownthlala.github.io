@@ -9,7 +9,7 @@ tags: [Landa Designs Cocktail Dresses]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html"><img src="//static.msromantic.com/139915/landa-designs-e529.jpg" alt="Landa Designs E529" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html"><img src="//static.msromantic.com/139915/landa-designs-e529.jpg" alt="Landa Designs E529" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html"><img src="//static.msromantic.com/139914/landa-designs-e529.jpg" alt="Landa Designs E529" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html](https://www.readybrides.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html"><img src="//static.msromantic.com/139914/landa-designs-e529.jpg" alt="Landa Designs E529" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html](https://www.antebrands.com/en/landa-designs-cocktail-dresses/59978-landa-designs-e529.html)

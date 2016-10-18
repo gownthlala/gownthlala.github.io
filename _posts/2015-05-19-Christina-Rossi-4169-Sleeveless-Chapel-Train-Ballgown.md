@@ -9,8 +9,8 @@ tags: [Christina Rossi,Ballgown,Sweetheart,Chapel Train,Sleeveless]
 Just **$289.99**
 ###   Sleeveless Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>Christina Rossi</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131252/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131252/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131253/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131251/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christina-rossi/55592-christina-rossi-4169.html](https://www.readybrides.com/en/christina-rossi/55592-christina-rossi-4169.html)
+<!-- break --><a href="https://www.antebrands.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131253/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christina-rossi/55592-christina-rossi-4169.html"><img src="//static.msromantic.com/131251/christina-rossi-4169.jpg" alt="Christina Rossi 4169" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christina-rossi/55592-christina-rossi-4169.html](https://www.antebrands.com/en/christina-rossi/55592-christina-rossi-4169.html)

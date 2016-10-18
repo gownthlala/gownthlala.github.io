@@ -9,7 +9,7 @@ tags: [The sposa Group - Kelly Star ,The sposa Group - Kelly Star,Ballgown,Sweet
 Just **$479.99**
 ###   Sleeveless Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>The sposa Group - Kelly Star</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html"><img src="//static.msromantic.com/130303/kelly-star-ks166-18.jpg" alt="Kelly Star KS166-18" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html"><img src="//static.msromantic.com/130303/kelly-star-ks166-18.jpg" alt="Kelly Star KS166-18" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html"><img src="//static.msromantic.com/130302/kelly-star-ks166-18.jpg" alt="Kelly Star KS166-18" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html"><img src="//static.msromantic.com/130302/kelly-star-ks166-18.jpg" alt="Kelly Star KS166-18" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55096-kelly-star-ks166-18.html)

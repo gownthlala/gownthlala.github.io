@@ -9,8 +9,8 @@ tags: [Callista,Mermaid/Trumpet,Plus Size,Sweetheart,Chapel Train,Sleeveless]
 Just **$369.99**
 ###   Sleeveless Chapel Train Mermaid/Trumpet Plus Size
 <table><tr><td>BRANDS</td><td>Callista</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Trend</td><td>Plus Size</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131383/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131383/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131384/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131382/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/callista/55637-callista-bridal-style-st-lucia.html](https://www.readybrides.com/en/callista/55637-callista-bridal-style-st-lucia.html)
+<!-- break --><a href="https://www.antebrands.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131384/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/callista/55637-callista-bridal-style-st-lucia.html"><img src="//static.msromantic.com/131382/callista-bridal-style-st-lucia.jpg" alt="Callista Bridal Style St Lucia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/callista/55637-callista-bridal-style-st-lucia.html](https://www.antebrands.com/en/callista/55637-callista-bridal-style-st-lucia.html)

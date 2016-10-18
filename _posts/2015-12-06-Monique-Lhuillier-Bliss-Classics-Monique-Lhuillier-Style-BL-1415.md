@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Bliss - Classics]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html"><img src="//static.msromantic.com/121562/monique-lhuillier-style-bl-1415.jpg" alt="Monique Lhuillier Style BL 1415" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html"><img src="//static.msromantic.com/121562/monique-lhuillier-style-bl-1415.jpg" alt="Monique Lhuillier Style BL 1415" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html](https://www.readybrides.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html](https://www.antebrands.com/en/monique-lhuillier-bliss-classics/52057-monique-lhuillier-style-bl-1415.html)

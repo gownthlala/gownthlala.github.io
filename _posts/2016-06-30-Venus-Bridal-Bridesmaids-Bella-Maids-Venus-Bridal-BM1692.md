@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Bella Maids]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html"><img src="//static.msromantic.com/129164/venus-bridal-bm1692.jpg" alt="Venus Bridal BM1692" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html"><img src="//static.msromantic.com/129164/venus-bridal-bm1692.jpg" alt="Venus Bridal BM1692" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html"><img src="//static.msromantic.com/129163/venus-bridal-bm1692.jpg" alt="Venus Bridal BM1692" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html"><img src="//static.msromantic.com/129163/venus-bridal-bm1692.jpg" alt="Venus Bridal BM1692" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54599-venus-bridal-bm1692.html)

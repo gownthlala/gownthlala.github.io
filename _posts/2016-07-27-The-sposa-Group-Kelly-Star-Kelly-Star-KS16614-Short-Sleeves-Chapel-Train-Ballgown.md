@@ -9,7 +9,7 @@ tags: [The sposa Group - Kelly Star ,The sposa Group - Kelly Star,Ballgown,Batea
 Just **$529.99**
 ###   Short Sleeves Chapel Train Ballgown 
 <table><tr><td>BRANDS</td><td>The sposa Group - Kelly Star</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html"><img src="//static.msromantic.com/130297/kelly-star-ks166-14.jpg" alt="Kelly Star KS166-14" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html"><img src="//static.msromantic.com/130297/kelly-star-ks166-14.jpg" alt="Kelly Star KS166-14" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html"><img src="//static.msromantic.com/130296/kelly-star-ks166-14.jpg" alt="Kelly Star KS166-14" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html](https://www.readybrides.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html)
+<!-- break --><a href="https://www.antebrands.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html"><img src="//static.msromantic.com/130296/kelly-star-ks166-14.jpg" alt="Kelly Star KS166-14" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html](https://www.antebrands.com/en/the-sposa-group-kelly-star-/55093-kelly-star-ks166-14.html)

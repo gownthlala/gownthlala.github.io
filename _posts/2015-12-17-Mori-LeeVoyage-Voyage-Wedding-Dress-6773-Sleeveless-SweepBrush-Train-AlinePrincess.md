@@ -9,8 +9,8 @@ tags: [Mori Lee-Voyage ,Aline/Princess ,Sweetheart,Sweep/Brush Train,Sleeveless]
 Just **$269.99**
 ###   Sleeveless Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Mori Lee-Voyage </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125445/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125445/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125446/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125444/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html](https://www.readybrides.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html)
+<!-- break --><a href="https://www.antebrands.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125446/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html"><img src="//static.msromantic.com/125444/voyage-wedding-dress-6773.jpg" alt="Voyage Wedding Dress 6773" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html](https://www.antebrands.com/en/mori-lee-voyage-/53469-voyage-wedding-dress-6773.html)

@@ -9,8 +9,8 @@ tags: [Venus Bridal Intermezzo]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129539/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129539/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129540/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129538/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html](https://www.readybrides.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129540/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html"><img src="//static.msromantic.com/129538/venus-bridal-mb2291.jpg" alt="Venus Bridal MB2291" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html](https://www.antebrands.com/en/venus-bridal-intermezzo/54769-venus-bridal-mb2291.html)

@@ -9,7 +9,7 @@ tags: [Pallas Couture Fleur & Fleur Blanche]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html"><img src="//static.msromantic.com/121910/pallas-couture-amarante.jpg" alt="Pallas Couture Amarante" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html"><img src="//static.msromantic.com/121910/pallas-couture-amarante.jpg" alt="Pallas Couture Amarante" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html](https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html](https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52219-pallas-couture-amarante.html)

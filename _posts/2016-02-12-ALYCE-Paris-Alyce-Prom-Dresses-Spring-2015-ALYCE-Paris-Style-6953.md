@@ -9,8 +9,8 @@ tags: [ALYCE Paris Alyce Prom Dresses - Spring 2015]
 Just **$869.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132955/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132955/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132956/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132954/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html](https://www.readybrides.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132956/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html"><img src="//static.msromantic.com/132954/alyce-paris-style-6953.jpg" alt="ALYCE Paris Style 6953" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html](https://www.antebrands.com/en/alyce-paris-alyce-prom-dresses-spring-2015/56328-alyce-paris-style-6953.html)

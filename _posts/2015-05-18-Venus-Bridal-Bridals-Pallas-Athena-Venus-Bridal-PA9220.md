@@ -9,8 +9,8 @@ tags: [Venus Bridal Bridals Pallas Athena]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128211/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128211/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128212/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128210/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html](https://www.readybrides.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128212/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html"><img src="//static.msromantic.com/128210/venus-bridal-pa9220.jpg" alt="Venus Bridal PA9220" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html](https://www.antebrands.com/en/venus-bridal-bridals-pallas-athena/54190-venus-bridal-pa9220.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Splash Prom Dresses]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html"><img src="//static.msromantic.com/139640/landa-designs-j428.jpg" alt="Landa Designs J428" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html"><img src="//static.msromantic.com/139640/landa-designs-j428.jpg" alt="Landa Designs J428" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html"><img src="//static.msromantic.com/139639/landa-designs-j428.jpg" alt="Landa Designs J428" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html](https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html"><img src="//static.msromantic.com/139639/landa-designs-j428.jpg" alt="Landa Designs J428" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html](https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59829-landa-designs-j428.html)

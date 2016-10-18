@@ -9,7 +9,7 @@ tags: [ALYCE Paris Black Label - Fall 2015]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html"><img src="//static.msromantic.com/133373/alyce-paris-alyce-black-label-dress-style-5718.jpg" alt="ALYCE Paris Alyce Black Label Dress - Style 5718" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html"><img src="//static.msromantic.com/133373/alyce-paris-alyce-black-label-dress-style-5718.jpg" alt="ALYCE Paris Alyce Black Label Dress - Style 5718" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html"><img src="//static.msromantic.com/133372/alyce-paris-alyce-black-label-dress-style-5718.jpg" alt="ALYCE Paris Alyce Black Label Dress - Style 5718" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html](https://www.readybrides.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html"><img src="//static.msromantic.com/133372/alyce-paris-alyce-black-label-dress-style-5718.jpg" alt="ALYCE Paris Alyce Black Label Dress - Style 5718" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html](https://www.antebrands.com/en/alyce-paris-black-label-fall-2015/56501-alyce-paris-alyce-black-label-dress-style-5718.html)

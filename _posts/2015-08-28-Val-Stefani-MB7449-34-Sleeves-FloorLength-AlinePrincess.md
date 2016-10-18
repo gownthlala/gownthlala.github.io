@@ -9,7 +9,7 @@ tags: [Val Stefani ,Val Stefani,Aline/Princess ,Off The Shoulder,Floor-Length,3/
 Just **$299.99**
 ###   3/4 Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Val Stefani</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/val-stefani-/51490-val-stefani-mb7449.html"><img src="//static.msromantic.com/120770/val-stefani-mb7449.jpg" alt="Val Stefani MB7449" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/val-stefani-/51490-val-stefani-mb7449.html"><img src="//static.msromantic.com/120770/val-stefani-mb7449.jpg" alt="Val Stefani MB7449" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/val-stefani-/51490-val-stefani-mb7449.html"><img src="//static.msromantic.com/120769/val-stefani-mb7449.jpg" alt="Val Stefani MB7449" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/val-stefani-/51490-val-stefani-mb7449.html](https://www.readybrides.com/en/val-stefani-/51490-val-stefani-mb7449.html)
+<!-- break --><a href="https://www.antebrands.com/en/val-stefani-/51490-val-stefani-mb7449.html"><img src="//static.msromantic.com/120769/val-stefani-mb7449.jpg" alt="Val Stefani MB7449" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/val-stefani-/51490-val-stefani-mb7449.html](https://www.antebrands.com/en/val-stefani-/51490-val-stefani-mb7449.html)

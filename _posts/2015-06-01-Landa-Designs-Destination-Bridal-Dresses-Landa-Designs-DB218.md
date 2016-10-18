@@ -9,7 +9,7 @@ tags: [Landa Designs Destination Bridal Dresses]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html"><img src="//static.msromantic.com/140499/landa-designs-db218.jpg" alt="Landa Designs DB218" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html"><img src="//static.msromantic.com/140499/landa-designs-db218.jpg" alt="Landa Designs DB218" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html"><img src="//static.msromantic.com/140498/landa-designs-db218.jpg" alt="Landa Designs DB218" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html](https://www.readybrides.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html"><img src="//static.msromantic.com/140498/landa-designs-db218.jpg" alt="Landa Designs DB218" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html](https://www.antebrands.com/en/landa-designs-destination-bridal-dresses/60275-landa-designs-db218.html)

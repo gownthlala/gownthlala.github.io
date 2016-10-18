@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Collection - Spring 2016]
 Just **$499.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html"><img src="//static.msromantic.com/121458/monique-lhuillier-lizzi.jpg" alt="Monique Lhuillier Lizzi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html"><img src="//static.msromantic.com/121458/monique-lhuillier-lizzi.jpg" alt="Monique Lhuillier Lizzi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html](https://www.readybrides.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html](https://www.antebrands.com/en/monique-lhuillier-collection-spring-2016/51953-monique-lhuillier-lizzi.html)

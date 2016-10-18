@@ -9,7 +9,7 @@ tags: [Val Stefani ,Val Stefani,Aline/Princess ,Cowl,Ankle-Length,Sleeveless]
 Just **$289.99**
 ###   Sleeveless Ankle-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Val Stefani</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Cowl</td></tr><tr><td>Hemline/Train</td><td>Ankle-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/val-stefani-/51550-val-stefani-mb7171.html"><img src="//static.msromantic.com/120890/val-stefani-mb7171.jpg" alt="Val Stefani MB7171" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/val-stefani-/51550-val-stefani-mb7171.html"><img src="//static.msromantic.com/120890/val-stefani-mb7171.jpg" alt="Val Stefani MB7171" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/val-stefani-/51550-val-stefani-mb7171.html"><img src="//static.msromantic.com/120889/val-stefani-mb7171.jpg" alt="Val Stefani MB7171" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/val-stefani-/51550-val-stefani-mb7171.html](https://www.readybrides.com/en/val-stefani-/51550-val-stefani-mb7171.html)
+<!-- break --><a href="https://www.antebrands.com/en/val-stefani-/51550-val-stefani-mb7171.html"><img src="//static.msromantic.com/120889/val-stefani-mb7171.jpg" alt="Val Stefani MB7171" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/val-stefani-/51550-val-stefani-mb7171.html](https://www.antebrands.com/en/val-stefani-/51550-val-stefani-mb7171.html)

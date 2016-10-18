@@ -9,7 +9,7 @@ tags: [Christina Rossi]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christina-rossi/55584-christina-rossi-4228a.html"><img src="//static.msromantic.com/131229/christina-rossi-4228a.jpg" alt="Christina Rossi 4228A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christina-rossi/55584-christina-rossi-4228a.html"><img src="//static.msromantic.com/131229/christina-rossi-4228a.jpg" alt="Christina Rossi 4228A" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christina-rossi/55584-christina-rossi-4228a.html](https://www.readybrides.com/en/christina-rossi/55584-christina-rossi-4228a.html)
+Buy it: [https://www.antebrands.com/en/christina-rossi/55584-christina-rossi-4228a.html](https://www.antebrands.com/en/christina-rossi/55584-christina-rossi-4228a.html)

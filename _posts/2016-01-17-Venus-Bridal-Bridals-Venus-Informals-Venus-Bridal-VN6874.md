@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridals Venus Informals]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html"><img src="//static.msromantic.com/128789/venus-bridal-vn6874.jpg" alt="Venus Bridal VN6874" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html"><img src="//static.msromantic.com/128789/venus-bridal-vn6874.jpg" alt="Venus Bridal VN6874" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html"><img src="//static.msromantic.com/128788/venus-bridal-vn6874.jpg" alt="Venus Bridal VN6874" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html](https://www.readybrides.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html"><img src="//static.msromantic.com/128788/venus-bridal-vn6874.jpg" alt="Venus Bridal VN6874" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html](https://www.antebrands.com/en/venus-bridal-bridals-venus-informals/54434-venus-bridal-vn6874.html)

@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridals Angel Tradition]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html"><img src="//static.msromantic.com/128531/venus-bridal-at4598.jpg" alt="Venus Bridal AT4598" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html"><img src="//static.msromantic.com/128531/venus-bridal-at4598.jpg" alt="Venus Bridal AT4598" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html"><img src="//static.msromantic.com/128530/venus-bridal-at4598.jpg" alt="Venus Bridal AT4598" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html](https://www.readybrides.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html"><img src="//static.msromantic.com/128530/venus-bridal-at4598.jpg" alt="Venus Bridal AT4598" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html](https://www.antebrands.com/en/venus-bridal-bridals-angel-tradition/54323-venus-bridal-at4598.html)

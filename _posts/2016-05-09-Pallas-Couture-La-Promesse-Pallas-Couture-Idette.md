@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html"><img src="//static.msromantic.com/121903/pallas-couture-idette.jpg" alt="Pallas Couture Idette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html"><img src="//static.msromantic.com/121903/pallas-couture-idette.jpg" alt="Pallas Couture Idette" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52212-pallas-couture-idette.html)

@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html"><img src="//static.msromantic.com/121885/pallas-couture-cyril.jpg" alt="Pallas Couture Cyril" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html"><img src="//static.msromantic.com/121885/pallas-couture-cyril.jpg" alt="Pallas Couture Cyril" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html](https://www.readybrides.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html](https://www.antebrands.com/en/pallas-couture-classiques/52196-pallas-couture-cyril.html)

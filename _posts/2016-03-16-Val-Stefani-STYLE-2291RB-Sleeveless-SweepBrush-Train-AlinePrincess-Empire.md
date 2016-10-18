@@ -9,7 +9,7 @@ tags: [Val Stefani ,Val Stefani,Aline/Princess ,Empire,Strapless,Sweep/Brush Tra
 Just **$299.99**
 ###   Sleeveless Sweep/Brush Train Aline/Princess ,Empire 
 <table><tr><td>BRANDS</td><td>Val Stefani</td></tr><tr><td>Silhouette</td><td>Aline/Princess ,Empire</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/val-stefani-/51691-val-stefani-style-2291rb.html"><img src="//static.msromantic.com/121180/val-stefani-style-2291rb.jpg" alt="Val Stefani STYLE 2291RB" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/val-stefani-/51691-val-stefani-style-2291rb.html"><img src="//static.msromantic.com/121180/val-stefani-style-2291rb.jpg" alt="Val Stefani STYLE 2291RB" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/val-stefani-/51691-val-stefani-style-2291rb.html"><img src="//static.msromantic.com/121179/val-stefani-style-2291rb.jpg" alt="Val Stefani STYLE 2291RB" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/val-stefani-/51691-val-stefani-style-2291rb.html](https://www.readybrides.com/en/val-stefani-/51691-val-stefani-style-2291rb.html)
+<!-- break --><a href="https://www.antebrands.com/en/val-stefani-/51691-val-stefani-style-2291rb.html"><img src="//static.msromantic.com/121179/val-stefani-style-2291rb.jpg" alt="Val Stefani STYLE 2291RB" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/val-stefani-/51691-val-stefani-style-2291rb.html](https://www.antebrands.com/en/val-stefani-/51691-val-stefani-style-2291rb.html)

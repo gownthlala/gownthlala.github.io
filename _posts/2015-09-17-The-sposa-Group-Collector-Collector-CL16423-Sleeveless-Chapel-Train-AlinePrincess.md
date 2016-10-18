@@ -9,7 +9,7 @@ tags: [The sposa Group - Collector,Aline/Princess ,Strapless,Chapel Train,Sleeve
 Just **$349.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>The sposa Group - Collector</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/the-sposa-group-collector/55246-collector-cl164-23.html"><img src="//static.msromantic.com/130537/collector-cl164-23.jpg" alt="Collector CL164-23" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-sposa-group-collector/55246-collector-cl164-23.html"><img src="//static.msromantic.com/130537/collector-cl164-23.jpg" alt="Collector CL164-23" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-sposa-group-collector/55246-collector-cl164-23.html](https://www.readybrides.com/en/the-sposa-group-collector/55246-collector-cl164-23.html)
+Buy it: [https://www.antebrands.com/en/the-sposa-group-collector/55246-collector-cl164-23.html](https://www.antebrands.com/en/the-sposa-group-collector/55246-collector-cl164-23.html)

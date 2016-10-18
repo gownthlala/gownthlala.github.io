@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Bella Maids]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html"><img src="//static.msromantic.com/129104/venus-bridal-bm1734l.jpg" alt="Venus Bridal BM1734L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html"><img src="//static.msromantic.com/129104/venus-bridal-bm1734l.jpg" alt="Venus Bridal BM1734L" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html"><img src="//static.msromantic.com/129103/venus-bridal-bm1734l.jpg" alt="Venus Bridal BM1734L" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html"><img src="//static.msromantic.com/129103/venus-bridal-bm1734l.jpg" alt="Venus Bridal BM1734L" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54569-venus-bridal-bm1734l.html)

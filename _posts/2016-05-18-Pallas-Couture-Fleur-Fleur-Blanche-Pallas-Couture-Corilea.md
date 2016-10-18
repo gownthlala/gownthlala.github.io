@@ -9,7 +9,7 @@ tags: [Pallas Couture Fleur & Fleur Blanche]
 Just **$529.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html"><img src="//static.msromantic.com/121912/pallas-couture-corilea.jpg" alt="Pallas Couture Corilea" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html"><img src="//static.msromantic.com/121912/pallas-couture-corilea.jpg" alt="Pallas Couture Corilea" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html](https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html](https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52221-pallas-couture-corilea.html)

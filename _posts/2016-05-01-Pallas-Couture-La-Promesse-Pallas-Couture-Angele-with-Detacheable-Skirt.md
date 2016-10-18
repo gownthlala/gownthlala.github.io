@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html"><img src="//static.msromantic.com/121895/pallas-couture-angele-with-detacheable-skirt.jpg" alt="Pallas Couture Angele with Detacheable Skirt" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html"><img src="//static.msromantic.com/121895/pallas-couture-angele-with-detacheable-skirt.jpg" alt="Pallas Couture Angele with Detacheable Skirt" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52204-pallas-couture-angele-with-detacheable-skirt.html)

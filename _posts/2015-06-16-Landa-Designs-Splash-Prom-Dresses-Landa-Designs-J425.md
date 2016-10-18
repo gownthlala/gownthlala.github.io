@@ -9,7 +9,7 @@ tags: [Landa Designs Splash Prom Dresses]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html"><img src="//static.msromantic.com/139628/landa-designs-j425.jpg" alt="Landa Designs J425" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html"><img src="//static.msromantic.com/139628/landa-designs-j425.jpg" alt="Landa Designs J425" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html"><img src="//static.msromantic.com/139627/landa-designs-j425.jpg" alt="Landa Designs J425" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html](https://www.readybrides.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html"><img src="//static.msromantic.com/139627/landa-designs-j425.jpg" alt="Landa Designs J425" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html](https://www.antebrands.com/en/landa-designs-splash-prom-dresses/59823-landa-designs-j425.html)

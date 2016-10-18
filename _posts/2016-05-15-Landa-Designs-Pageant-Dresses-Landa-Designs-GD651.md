@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$509.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html"><img src="//static.msromantic.com/140268/landa-designs-gd651.jpg" alt="Landa Designs GD651" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html"><img src="//static.msromantic.com/140268/landa-designs-gd651.jpg" alt="Landa Designs GD651" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html"><img src="//static.msromantic.com/140267/landa-designs-gd651.jpg" alt="Landa Designs GD651" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html"><img src="//static.msromantic.com/140267/landa-designs-gd651.jpg" alt="Landa Designs GD651" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60157-landa-designs-gd651.html)

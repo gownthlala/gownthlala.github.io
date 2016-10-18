@@ -9,7 +9,7 @@ tags: [Pallas Couture Fleur & Fleur Blanche]
 Just **$479.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html"><img src="//static.msromantic.com/121911/pallas-couture-claribel.jpg" alt="Pallas Couture Claribel" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html"><img src="//static.msromantic.com/121911/pallas-couture-claribel.jpg" alt="Pallas Couture Claribel" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html](https://www.readybrides.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html](https://www.antebrands.com/en/pallas-couture-fleur-fleur-blanche/52220-pallas-couture-claribel.html)

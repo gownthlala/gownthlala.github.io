@@ -9,7 +9,7 @@ tags: [Venus Bridal Bridesmaids Bella Maids]
 Just **$139.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html"><img src="//static.msromantic.com/128834/venus-bridal-bm2039.jpg" alt="Venus Bridal BM2039" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html"><img src="//static.msromantic.com/128834/venus-bridal-bm2039.jpg" alt="Venus Bridal BM2039" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html"><img src="//static.msromantic.com/128833/venus-bridal-bm2039.jpg" alt="Venus Bridal BM2039" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html"><img src="//static.msromantic.com/128833/venus-bridal-bm2039.jpg" alt="Venus Bridal BM2039" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54456-venus-bridal-bm2039.html)

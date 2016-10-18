@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html"><img src="//static.msromantic.com/121905/pallas-couture-celesse.jpg" alt="Pallas Couture Celesse" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html"><img src="//static.msromantic.com/121905/pallas-couture-celesse.jpg" alt="Pallas Couture Celesse" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52214-pallas-couture-celesse.html)

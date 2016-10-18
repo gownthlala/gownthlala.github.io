@@ -9,7 +9,7 @@ tags: [ALYCE Paris B Dazzle - Fall 2015]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html"><img src="//static.msromantic.com/132542/alyce-paris-b-dazzle-prom-dress-style-35708.jpg" alt="ALYCE Paris B'Dazzle Prom Dress Style 35708" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html"><img src="//static.msromantic.com/132542/alyce-paris-b-dazzle-prom-dress-style-35708.jpg" alt="ALYCE Paris B'Dazzle Prom Dress Style 35708" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html"><img src="//static.msromantic.com/132541/alyce-paris-b-dazzle-prom-dress-style-35708.jpg" alt="ALYCE Paris B'Dazzle Prom Dress Style 35708" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html](https://www.readybrides.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html"><img src="//static.msromantic.com/132541/alyce-paris-b-dazzle-prom-dress-style-35708.jpg" alt="ALYCE Paris B'Dazzle Prom Dress Style 35708" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html](https://www.antebrands.com/en/alyce-paris-b-dazzle-fall-2015/56141-alyce-paris-b-dazzle-prom-dress-style-35708.html)

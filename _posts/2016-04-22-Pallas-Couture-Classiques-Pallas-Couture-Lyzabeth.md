@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html"><img src="//static.msromantic.com/121884/pallas-couture-lyzabeth.jpg" alt="Pallas Couture Lyzabeth" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html"><img src="//static.msromantic.com/121884/pallas-couture-lyzabeth.jpg" alt="Pallas Couture Lyzabeth" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html](https://www.readybrides.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html](https://www.antebrands.com/en/pallas-couture-classiques/52195-pallas-couture-lyzabeth.html)

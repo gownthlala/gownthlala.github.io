@@ -9,7 +9,7 @@ tags: [ALYCE Paris Alyce Short dresses - Fall 2015]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html"><img src="//static.msromantic.com/132204/alyce-paris-alyce-short-dress-style-3651.jpg" alt="ALYCE Paris Alyce Short Dress - Style 3651" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html"><img src="//static.msromantic.com/132204/alyce-paris-alyce-short-dress-style-3651.jpg" alt="ALYCE Paris Alyce Short Dress - Style 3651" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html"><img src="//static.msromantic.com/132203/alyce-paris-alyce-short-dress-style-3651.jpg" alt="ALYCE Paris Alyce Short Dress - Style 3651" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html](https://www.readybrides.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html"><img src="//static.msromantic.com/132203/alyce-paris-alyce-short-dress-style-3651.jpg" alt="ALYCE Paris Alyce Short Dress - Style 3651" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html](https://www.antebrands.com/en/alyce-paris-alyce-short-dresses-fall-2015/55988-alyce-paris-alyce-short-dress-style-3651.html)

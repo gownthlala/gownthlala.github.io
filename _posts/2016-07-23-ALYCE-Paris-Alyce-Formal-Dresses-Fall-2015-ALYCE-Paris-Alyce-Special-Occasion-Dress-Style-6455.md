@@ -9,7 +9,7 @@ tags: [ALYCE Paris Alyce Formal Dresses - Fall 2015]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html"><img src="//static.msromantic.com/133350/alyce-paris-alyce-special-occasion-dress-style-6455.jpg" alt="ALYCE Paris Alyce Special Occasion Dress - Style 6455" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html"><img src="//static.msromantic.com/133350/alyce-paris-alyce-special-occasion-dress-style-6455.jpg" alt="ALYCE Paris Alyce Special Occasion Dress - Style 6455" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html](https://www.readybrides.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html)
+Buy it: [https://www.antebrands.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html](https://www.antebrands.com/en/alyce-paris-alyce-formal-dresses-fall-2015/56490-alyce-paris-alyce-special-occasion-dress-style-6455.html)

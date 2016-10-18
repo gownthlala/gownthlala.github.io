@@ -9,7 +9,7 @@ tags: [Monique Lhuillier Bridesmaids - Spring 2016]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html"><img src="//static.msromantic.com/121572/monique-lhuillier-style-450253-450324-450240.jpg" alt="Monique Lhuillier Style 450253 450324 450240" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html"><img src="//static.msromantic.com/121572/monique-lhuillier-style-450253-450324-450240.jpg" alt="Monique Lhuillier Style 450253 450324 450240" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html](https://www.readybrides.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html)
+Buy it: [https://www.antebrands.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html](https://www.antebrands.com/en/monique-lhuillier-bridesmaids-spring-2016/52067-monique-lhuillier-style-450253-450324-450240.html)

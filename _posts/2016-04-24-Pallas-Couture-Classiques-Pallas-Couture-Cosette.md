@@ -9,7 +9,7 @@ tags: [Pallas Couture Classiques]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html"><img src="//static.msromantic.com/121887/pallas-couture-cosette.jpg" alt="Pallas Couture Cosette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html"><img src="//static.msromantic.com/121887/pallas-couture-cosette.jpg" alt="Pallas Couture Cosette" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html"><img src="//static.msromantic.com/121886/pallas-couture-cosette.jpg" alt="Pallas Couture Cosette" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html](https://www.readybrides.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html)
+<!-- break --><a href="https://www.antebrands.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html"><img src="//static.msromantic.com/121886/pallas-couture-cosette.jpg" alt="Pallas Couture Cosette" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html](https://www.antebrands.com/en/pallas-couture-classiques/52197-pallas-couture-cosette.html)

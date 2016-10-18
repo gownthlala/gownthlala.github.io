@@ -9,7 +9,7 @@ tags: [ALYCE Paris Private Dress Collection - Fall 2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html"><img src="//static.msromantic.com/132375/alyce-paris-alyce-paris-exclusive-dress-style-1025.jpg" alt="ALYCE Paris Alyce Paris - Exclusive Dress Style 1025" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html"><img src="//static.msromantic.com/132375/alyce-paris-alyce-paris-exclusive-dress-style-1025.jpg" alt="ALYCE Paris Alyce Paris - Exclusive Dress Style 1025" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html"><img src="//static.msromantic.com/132374/alyce-paris-alyce-paris-exclusive-dress-style-1025.jpg" alt="ALYCE Paris Alyce Paris - Exclusive Dress Style 1025" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html](https://www.readybrides.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html"><img src="//static.msromantic.com/132374/alyce-paris-alyce-paris-exclusive-dress-style-1025.jpg" alt="ALYCE Paris Alyce Paris - Exclusive Dress Style 1025" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html](https://www.antebrands.com/en/alyce-paris-private-dress-collection-fall-2015/56060-alyce-paris-alyce-paris-exclusive-dress-style-1025.html)

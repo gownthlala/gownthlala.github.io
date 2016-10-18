@@ -9,7 +9,7 @@ tags: [Pallas Couture La Haute Bijoux]
 Just **$539.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html"><img src="//static.msromantic.com/121868/pallas-couture-berenice.jpg" alt="Pallas Couture Berenice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html"><img src="//static.msromantic.com/121868/pallas-couture-berenice.jpg" alt="Pallas Couture Berenice" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html](https://www.readybrides.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html](https://www.antebrands.com/en/pallas-couture-la-haute-bijoux/52181-pallas-couture-berenice.html)

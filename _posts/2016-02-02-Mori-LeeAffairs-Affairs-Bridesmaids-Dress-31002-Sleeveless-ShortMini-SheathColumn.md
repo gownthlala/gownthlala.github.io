@@ -9,7 +9,7 @@ tags: [Mori Lee-Affairs ,Mori Lee-Affairs,Sheath/Column,Sweetheart,Short/Mini,Sl
 Just **$169.99**
 ###   Sleeveless Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Mori Lee-Affairs</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html"><img src="//static.msromantic.com/125629/affairs-bridesmaids-dress-31002.jpg" alt="Affairs Bridesmaids Dress 31002" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html"><img src="//static.msromantic.com/125629/affairs-bridesmaids-dress-31002.jpg" alt="Affairs Bridesmaids Dress 31002" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html](https://www.readybrides.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html)
+Buy it: [https://www.antebrands.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html](https://www.antebrands.com/en/mori-lee-affairs-/53516-affairs-bridesmaids-dress-31002.html)

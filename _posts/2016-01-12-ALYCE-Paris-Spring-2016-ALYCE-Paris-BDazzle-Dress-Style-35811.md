@@ -9,7 +9,7 @@ tags: [ALYCE Paris Spring 2016]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html"><img src="//static.msromantic.com/131845/alyce-paris-b-dazzle-dress-style-35811.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35811" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html"><img src="//static.msromantic.com/131845/alyce-paris-b-dazzle-dress-style-35811.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35811" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html"><img src="//static.msromantic.com/131844/alyce-paris-b-dazzle-dress-style-35811.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35811" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html](https://www.readybrides.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html)
+<!-- break --><a href="https://www.antebrands.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html"><img src="//static.msromantic.com/131844/alyce-paris-b-dazzle-dress-style-35811.jpg" alt="ALYCE Paris B'Dazzle - Dress Style 35811" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html](https://www.antebrands.com/en/alyce-paris-spring-2016/55830-alyce-paris-b-dazzle-dress-style-35811.html)

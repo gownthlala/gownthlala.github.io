@@ -9,8 +9,8 @@ tags: [Mori Lee-Blu,Aline/Princess ,Bateau,Chapel Train,Short Sleeves]
 Just **$309.99**
 ###   Short Sleeves Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Mori Lee-Blu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124877/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124877/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124878/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124876/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html](https://www.readybrides.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html)
+<!-- break --><a href="https://www.antebrands.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124878/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html"><img src="//static.msromantic.com/124876/blu-wedding-gown-5370.jpg" alt="Blu Wedding Gown 5370" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html](https://www.antebrands.com/en/mori-lee-blu/53295-blu-wedding-gown-5370.html)

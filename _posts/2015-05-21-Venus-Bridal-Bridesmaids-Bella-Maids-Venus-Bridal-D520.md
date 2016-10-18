@@ -9,8 +9,8 @@ tags: [Venus Bridal Bridesmaids Bella Maids]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129286/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129286/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129287/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129285/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html](https://www.readybrides.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html)
+<!-- break --><a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129287/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html"><img src="//static.msromantic.com/129285/venus-bridal-d520.jpg" alt="Venus Bridal D520" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html](https://www.antebrands.com/en/venus-bridal-bridesmaids-bella-maids/54660-venus-bridal-d520.html)

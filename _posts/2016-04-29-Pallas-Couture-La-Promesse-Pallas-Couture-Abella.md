@@ -9,7 +9,7 @@ tags: [Pallas Couture La Promesse]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html"><img src="//static.msromantic.com/121893/pallas-couture-abella.jpg" alt="Pallas Couture Abella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html"><img src="//static.msromantic.com/121893/pallas-couture-abella.jpg" alt="Pallas Couture Abella" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html](https://www.readybrides.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html)
+Buy it: [https://www.antebrands.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html](https://www.antebrands.com/en/pallas-couture-la-promesse/52202-pallas-couture-abella.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Pageant Dresses]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html"><img src="//static.msromantic.com/140147/landa-designs-us807.jpg" alt="Landa Designs US807" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html"><img src="//static.msromantic.com/140147/landa-designs-us807.jpg" alt="Landa Designs US807" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html"><img src="//static.msromantic.com/140146/landa-designs-us807.jpg" alt="Landa Designs US807" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html](https://www.readybrides.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html"><img src="//static.msromantic.com/140146/landa-designs-us807.jpg" alt="Landa Designs US807" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html](https://www.antebrands.com/en/landa-designs-pageant-dresses/60096-landa-designs-us807.html)
