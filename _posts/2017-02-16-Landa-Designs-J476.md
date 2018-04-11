@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2017-02-16'
+title: "Landa Designs J476"
+category: Landa Designs
+tags: [Landa Designs]
+---
+### Landa Designs J476
+Just **$309.99**
+###      
+<table><tr><td>BRANDS</td><td>Landa Designs</td></tr></table>
+<a href="https://www.readybrides.com/en/landa-designs/59893-landa-designs-j476.html"><img src="//img.readybrides.com/139768/landa-designs-j476.jpg" alt="Landa Designs J476" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/landa-designs/59893-landa-designs-j476.html"><img src="//img.readybrides.com/139767/landa-designs-j476.jpg" alt="Landa Designs J476" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/landa-designs/59893-landa-designs-j476.html](https://www.readybrides.com/en/landa-designs/59893-landa-designs-j476.html)

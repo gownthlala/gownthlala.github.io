@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2016-05-20'
+title: "Monique Lhuillier Style BLush V-neck chiffon gown with soft pleating and lace back 2015"
+category: Monique Lhuillier
+tags: [Monique Lhuillier,2015]
+---
+### Monique Lhuillier Style BLush V-neck chiffon gown with soft pleating and lace back
+Just **$199.99**
+### 2015     
+<table><tr><td>BRANDS</td><td>Monique Lhuillier</td></tr><tr><td>Years</td><td>2015</td></tr></table>
+<a href="https://www.readybrides.com/en/monique-lhuillier/52082-monique-lhuillier-style-blush-v-neck-chiffon-gown-with-soft-pleating-and-lace-back.html"><img src="//img.readybrides.com/121587/monique-lhuillier-style-blush-v-neck-chiffon-gown-with-soft-pleating-and-lace-back.jpg" alt="Monique Lhuillier Style BLush V-neck chiffon gown with soft pleating and lace back" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/monique-lhuillier/52082-monique-lhuillier-style-blush-v-neck-chiffon-gown-with-soft-pleating-and-lace-back.html](https://www.readybrides.com/en/monique-lhuillier/52082-monique-lhuillier-style-blush-v-neck-chiffon-gown-with-soft-pleating-and-lace-back.html)
