@@ -1,4 +1,0 @@
----
-slug: winter
-name: Winter
----
