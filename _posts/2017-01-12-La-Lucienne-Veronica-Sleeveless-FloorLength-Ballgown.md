@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-01-12'
+date: 2017-01-12
 title: "La Lucienne Veronica Sleeveless Floor-Length Ballgown"
 category: La Lucienne 
 tags: [La Lucienne ,La Lucienne,Ballgown,Strapless,Floor-Length,Sleeveless]

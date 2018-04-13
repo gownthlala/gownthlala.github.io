@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-06-02'
+date: 2017-06-02
 title: "Landa Designs E545"
 category: Landa Designs
 tags: [Landa Designs]

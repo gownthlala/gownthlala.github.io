@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-06-14'
+date: 2016-06-14
 title: "Mori Lee Wedding Dress 2623 Sleeveless Chapel Train Mermaid/Trumpet"
 category: Mori Lee 
 tags: [Mori Lee ,Mori Lee,Mermaid/Trumpet,Sweetheart,Chapel Train,Sleeveless]
